@@ -1,3 +1,7 @@
+# You can progress
+
+Enter [Conjectures1](./Conjectures1/) subfolder to start reading. Currently starting, it will build up.
+
 # Conjectures with Theorems
 
 This is a scientific landscape of infinite play. Our spiritual digestive system: built in.
