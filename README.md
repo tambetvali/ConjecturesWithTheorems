@@ -1,2 +1,41 @@
-# ConjecturesWithTheorems
+# Conjectures with Theorems
+
 This is a scientific landscape of infinite play. Our spiritual digestive system: built in.
+
+Laegna is rather tautological math, and SpiReason is study of absolute, simple essentials encoded into vast landscape of Laegna math. Scientific study of formal Laegna math is not my issue, but large collective body of work: a definition, which puts it into the future and as the recognition of my inherit genius of play, excluding me and my memory slowly, and perhaps the whole theory. Let's see how much an AI would store: does somewhere, start a collective memory of fine-grained internet, personal frameworks and experience-based assumptions?
+
+Here, conjecture and theorem meet: they form more complex, solution-oriented aspects of both Laegna and SpiReason: material and spiritual science.
+
+## Spiritual science
+
+For sake of simplicity and general understandability, the spiritual science here uses SpiReason's constructs where applicable, but instead of being coherently based on Laegna, which is impossible in classic landscape:
+- It's based on goal-based logic: the spirit, cause <= goal.
+- It's based on classic, causal logic: the matter, cause => effect.
+
+This circulation is called chi:
+- Our head brain, located near sensory and coordination systems: resembles the spirit and is "over" the spine, in it's form to take initiative.
+- Our spine brain, and it's physical systems: resembles the matter and is "under" the head, in sense of responding to actual experience and direct experience.
+
+Tao:
+- There is yin inside yang: head, slowly, as it practices Zen and Tao, becomes free and elevating in conception, and surrender and flexible to the surroundings.
+  - Surrounding: could be "surrender rounding", a mathematical approximation of our surrender, God <= cause if seen as in Hermetics: ideal totality of logic and matter, thus spirit of goal; evolution is evolution as much as it evolves - if it does not converge the goal of everything is still it's complete integration, but it's an attractor - goal of total integration and acceleration, where "acceleration" is natural side-effect of goal-based logic, not speficic explicit statement inside it's framework; it maps to classical logic as "acceleration", a number on certain axe, growing in it's direction of growth, numerically accelerating but this implies: metaphysically, finding larger number in it's initial direction, and this as a theorem, must heavily involve goal-based logic or resolving acceleration, as growth of real-world quality, into growing combinatorics to solve entropy, and Godel's unfolding incompleteness of time and especially infinities: spirit => unfolding. Opening of Crown synchronizes chakras.
+- There is yang inside yin: with enough experience, it gets experience of creativity and flow itself, and body is still based on flow: altough bottom-up, from particulars, it yields into "spiritual" - it's where it's evolution, "development based on exercise => pain => solution" rather than infinite goal attractor, such as "goodness", "perfection" or other abstract realities which hopefully point towards the actual future, and not some imaginary framework of "ideal qualities", which could lead even to death. Our reasonable attractor is that "life" itself, if wrong, really provides just another solution: not human, or maybe gray-like alien would "happily" survive such reality over the past illusion. Root Chakra radiates upwards, mirroring Crown Chakra experience when it starts to accelerate: Kundalini Spirit, the Holy Spirit or Shakti, will Illuminate your reality if you live in modern society, or bring the Natural Obeyance if you life in Spirit of Forests and Nature alone. It leads to Jedi if you live in: era of Star Wars, and qualitatively it's environment of mostly robots and space rockets, and anything one can do with them, will appear soon: Jedi is the Future Illuminate, if not Modern.
+
+Spiritual intention involves:
+- "Goal": becomes real development, evolution beyond evolution and any backwards reasoning from final development of qualities. "True" is not that it is cause by clear consequence chain, or that it will happen: but it's a direction which rewards us on it's own, as compared to others, and does not meet specific criteria but rather grows with all of them, and is attracted to more ideal, transcend qualities of future orientations and directions we might not share.
+- "Action": we act in this direction, and consequentively turn this into more casual, experience-based reasoning and find reasons to base our frameworks of direction on that.
+
+In this spiritual reasoning:
+
+- If it's your big surprise that "matter is based on cause and effects" will determine your understanding of matter and spirit, turning cognition into real illusion: spiritual "theorems" are nonsense, just ideal developments.
+
+- In goal-based logic, and we see it is necessarily involved in evolution, light-particle precognition / preoptimization, quantum supersets and Schroedinger fields, which all yield that something coherent with backwards reasoning, if material flow and it's direction is the "reason" and to go in the flow is the "reasoning", projecting material system if it follows attractor => satisfaction pattern, "internal coherence"; there is also yin, Dukkha - internal incoherence that we *still live in material world*, and *spiritually it seems like an eternal obstacle*. If we go Buddhism => Taoism and follow the physical practice, where complete development of body implies, development of every aspect of mind, thus all the given aspects; holistic training of nerves, muscles, bones and internal organs (which also have sensors and motors, and it's good to do exercise once over a few years with most organs as they do not tolerate such thing in excess, for example I pained out my teeth).
+
+We can see if:
+- Goal => Ideal
+- Actor => Cause
+- Evolution => Blind Cause
+- Evolution Goal-Based: paradigm of final integration of any possible development, not equal to classical logic: classic evolution is angle in real time from absolute past (limit) to absolute future (limit), and the evolution might satisfy a few facts and stop, in sense of never reaching given goal or orientation; hardly, we would then imagine it because we are actors - active resolves of goal.
+- Reflection and active reflection: because actors are reasoned and get goals, and evolution is seeking coherence like an AI model (somewhat evolutionary, in epochs => mutations and iterations => events / life story elements); it's coherence mode to run those goals.
+
+God is the ultimate direction of reality in infinity, but the Goal: Cause, which exists in Cause <= Goal shows how God is now. Our Crown chakra is our local direction to infinity, and for it to work means we remove more rounding from our digits to infinity, actual angle which meets that eventually. As Taoist says and Viking sees in fractal, but Viking fractal is a Cell, a person, coherent to the whole and whole is reflecting in shadows beyond, not so clear as direct hologram; in each case: a part of fractal hologram is not it's ideal copy, and it's value to take direction in infinity, in reality and Taoism becomes: we believe in God, but to go in it's aligned direction in infinity means calculating infinity in our own perspective, position, identity. Thus, a person follows Tao, and we look for Tao, using that word: as the personal direction is infinite, it meets all relevant external cause, fulfills the karmic / evolution / business cycle, but specifically this ethics is an attractor, and after met that, infinity straight direction melds into God's straight direction. To align all these, means to align God. The same way, our root chakra is made of separate, unique events which calibrate as mathematical field - of evolution, of material causes and effects, and how their chains lead to infinity; every tree, every stone and every person or computer or abstract AI model and implementation has unique "spirit", in sense that it's counted as separate, special experience and sacred on it own, even if it's replaced by new, evolved or appearing forms and mutations. Physical field turns to convergation in it's own way.
