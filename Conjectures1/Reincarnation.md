@@ -1,5 +1,7 @@
 # Toward a goal-based theory of reincarnation and identity
 
+Notice: CoPilot is referring to weaker identity than me, but I was specifically interested in what it would reach scientifically: you can also work with my idea.
+
 ## 1. Initiation: setting the stage
 
 This article explores a bold idea: can we build a scientific-style theory of reincarnation using a logic of goals, identity patterns, and shared cognition, without relying on mystical language alone?
